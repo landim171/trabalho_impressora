@@ -1,0 +1,1 @@
+precisa de ajustes
